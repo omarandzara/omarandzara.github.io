@@ -1,1 +1,1 @@
-It\s Omar and Zara\!
+It's Omar and Zara!
